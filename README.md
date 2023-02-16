@@ -1,1 +1,1 @@
-Hola! solo deje las 2 secciones que modifique. Gracias!
+Hola! solo deje las 2 secciones que modifique (inicio y capacitaciones). Gracias!
